@@ -1,4 +1,4 @@
-
+smart blue lock rivals Script is the best blue lock rivals Script, featuring custom skins and unlimited stamina. Safe and powerful for all your needs.
 
 
 
